@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RaGa7
-- 👀 I’m interested in ...women
+- 👀 I’m interested in to provide banking services
 - 🌱 I’m currently learning ...banking 
 - 💞️ I’m looking to collaborate on ...banking services 
 - 📫 How to reach me ...
